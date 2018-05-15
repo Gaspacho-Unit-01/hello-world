@@ -1,2 +1,4 @@
-# hello-world
-My first repository thingy
+# NIGGAS IN MECCA 
+# BOLD AND BRASH
+
+smol letters
